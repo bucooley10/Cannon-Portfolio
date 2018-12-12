@@ -1,2 +1,3 @@
 # Cannon-Portfolio
-My work
+My work. Maybe I'll add to it "someday."
+
